@@ -1,4 +1,4 @@
-## Hi there 👋
+## YU IT 22313535_류재민
 
 <!--
 **hyeongeum/hyeongeum** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
